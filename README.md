@@ -99,4 +99,4 @@
     
 ![Captura de pantalla 2024-10-18 003651](https://github.com/user-attachments/assets/c9ffcb39-bcd1-4fde-b1a4-60f945d6618e)
 
-                                                  RACIAS POR SU ATENCION 
+                                                  GRACIAS POR SU ATENCION 
